@@ -1,2 +1,2 @@
 # Hello-word
-Hello I am buddhi.
+Hello I am buddhi from pokhara.
